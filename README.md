@@ -1,1 +1,1 @@
-![banner](https://www.canva.com/design/DAF_UTW1-gc/UiIGQHlWW6RSj6xerePa7w/edit?utm_content=DAF_UTW1-gc&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+![Brown and Gray Simple Personal LinkedIn Banner (3)](https://github.com/ganesh2401/TheGaneshRaorane/assets/43950376/503adff2-548a-4bb0-b359-63e7f97b07f5)
